@@ -1,0 +1,1 @@
+It’s taken me a while to zero in on my favorite method for making apple pie, but I think I've finally nailed it. This simple recipe guarantees perfectly cooked apples surrounded with a thick gently spiced sauce. There’s no need for precooking the sauce or apples and the steps to make this pie are simple, you just need a little time.
